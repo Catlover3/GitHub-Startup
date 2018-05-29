@@ -1,2 +1,2 @@
 # GitHub Startup
-Thanks GitHub
+Edited by Robert
